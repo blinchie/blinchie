@@ -1,5 +1,7 @@
-## Hi there 👋
-
+## PLEASE whisper !! i dunot see your messages.....offtab
+stu(dying) a lot :( 
+INLOVE with alien franchise and married with dead space
+kinn list :: isaac clark , amanda ripley , 
 <!--
 **blinchie/blinchie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
