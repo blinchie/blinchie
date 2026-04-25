@@ -1,5 +1,5 @@
 ## PLEASE whisper !! i dunot see your messages.....offtab
-stu(dying) a lot :( eng/ru
+! dnc guys this is not cool ! stu(dying) a lot :( eng/ru
 INLOVE with alien franchise and married with dead space
 
 kinn list :: isaac clark , amanda ripley .
