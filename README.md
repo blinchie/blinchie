@@ -1,5 +1,6 @@
 ## PLEASE whisper !! i dunot see your messages.....offtab
-! dnc guys this is not cool ! stu(dying) a lot :( eng/ru
+! dnc guys this is not cool ! stu(dying) a lot to become a space technology engineer:( eng/ru
+being physmath 💀 recommending physmath !
 INLOVE with alien franchise and married with dead space
 
 kinn list :: isaac clark , amanda ripley .
