@@ -7,5 +7,14 @@ ISTP* ; phlegmatic-sanguine ; ambivert
 
 FANDOMS
 чужой, dead space, alice madness returns, silent hill, hoyo, danganronpa, witch's heart ...
+
 MUSIC
-би-2, 
+би-2, наутилус помпилус, земфира, iron maiden, opeth, messa, my dying bride, desth, type o negwtive, HIM, deftones, korn, system of a down, slipknot
+
+ABOUT_ME:
+
+сдаю физику+англ, в будущем инженер космических технологий (f), традишнл художник и прогер на уровне хеллоу ворлд
+
+KINNIES?
+
+айзек кларк, аманда рипли, киса мягколапка!!
