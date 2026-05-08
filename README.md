@@ -4,7 +4,9 @@ ISTP* ; phlegmatic-sanguine ; ambivert
 !TW: sarcasm! данный пользователь может лопатьсы с карты и пропадать на несколько дней из-за специфики своего мобильного оператора и местоположения, прошу принять это как факт
 
 для особо любознательных: жемчуг не даю
+
 когда зашел в пинт и увидел уведомление violation notice
+
 FANDOMS
 чужой, dead space, alice madness returns, silent hill, hoyo, danganronpa, witch's heart ...
 
