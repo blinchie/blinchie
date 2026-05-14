@@ -15,8 +15,12 @@
 🍓🍓🍓🍓🍓🍓🍓
 
 
-данный пользователь может лопаться с карты и пропадать на несколько дней в связи со своим мобильным оператором . <<<<<
-i believe in pink characters supremacy !
+данный пользователь может лопаться с карты и пропадать на несколько дней в связи со своим мобильным оператором . <<<<<<
+   
+   i believe in pink characters supremacy !
+
+
+<img width="473" height="408" alt="image" src="https://github.com/user-attachments/assets/8d20ad51-ce5e-46cb-a3a2-2be9be325de4" />
 
 
 
