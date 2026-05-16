@@ -19,7 +19,7 @@
 -  sᴇᴄᴏɴᴅ ꜰᴀɴᴅᴏᴍs :: ʀᴇsɪᴅᴇɴᴛ ᴇᴠɪʟ , ʟᴜᴄᴋʏ sᴛᴀʀ , ᴡʜᴇɴ ᴛʜᴇʏ ᴄʀʏ
 -  
 -  mus1c :: ʙɪ 2 , ɴᴀᴜᴛɪʟᴜs ᴘᴏᴍᴘɪʟᴜs , ᴢᴇᴍꜰɪʀᴀ , ʜɪᴍ , ᴠᴏᴄᴀʟᴏɪᴅs - ᴋɪᴋᴜᴏ , ᴍᴀʀᴇᴛᴜ , ...ᴍᴀɴʏ ᴏᴛʜᴇʀs
--  
+-  <a href="https://docs.google.com/document/d/1d709_h4OTtz098qXgN7WvaqwGiiH6PwqgN643w7fZ0o/edit?usp=sharing">about characters</a>
 
 🍓🍓🍓🍓🍓🍓🍓
 
